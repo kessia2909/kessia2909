@@ -1,4 +1,4 @@
-### HI GUYS 💛🤍✨
+### HI GUYS 💛💗✨
 
  Me chamo Kessia Joaquina
 - Estou cursando o terceiro ano do ensino médio e estudando para o vestibular
